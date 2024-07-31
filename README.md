@@ -1,0 +1,2 @@
+# pseudocodigo
+Minhas atividades pessoais 
